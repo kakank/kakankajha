@@ -1,0 +1,2 @@
+# kakankajha
+penemuan kode rahasia
